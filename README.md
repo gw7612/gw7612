@@ -1,4 +1,4 @@
-### Hi, i`m newbie in crypto.👋
+### Hi my name is Serg, i`m newbie in crypto.👋
 
 <!--
 **gw7612/gw7612** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
